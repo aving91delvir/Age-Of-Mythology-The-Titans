@@ -219,4 +219,4 @@ The Titans is the full free version with all features and updates included. Enjo
 Don't miss out on the adventure! Download The Titans free today and expand your Age of Mythology experience!
 
 ---
-**Last updated:** 2026-10-16 19:21:02 UTC
+**Last updated:** 2026-10-16 22:34:54 UTC
